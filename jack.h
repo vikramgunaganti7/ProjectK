@@ -1,2 +1,2 @@
-Hi this is jack
+ this is jack
 Hope every one doing grate
